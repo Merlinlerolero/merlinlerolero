@@ -4,4 +4,3 @@
 ### Você pode entrar em contato comigo pelo email abaixo!! 📫
 ### *:sertraily111@gmail.com*
 
-###![YaeGPwwQ8lUTtGMkdP]
